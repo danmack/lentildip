@@ -4,13 +4,13 @@ Budget home made bean dip, high fibre, low cost!
 
 ## Ingredients
 
- 2 cups green lentils - dry
-16 oz bottle of pace picante sauce (medium or hot)
+ -  2 cups green lentils - dry
+ - 16 oz bottle of pace picante sauce (medium or hot)
 
 ## Equipment
 
- 1 x 5+ quart pot/kettle
- 1 x potato masher or eletric blender
+ -  1 x 5+ quart pot/kettle
+ -  1 x potato masher or eletric blender
 
 ## Prep
 
